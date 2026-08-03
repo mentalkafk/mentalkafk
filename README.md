@@ -3,4 +3,4 @@
 my 💌[ata^^](https://mentakafk.atabook.org)🪽
 
 Hello! I'm _Kaaazie!_ I'm very happy that you got interested in my GitHub! I really appreciate it, _ I really do!^^_
-In my ata, you can ask me any questions and chat with me for a bit. I'm always glad to meet new friends and answer some silly question<3!
+In my ata, you can ask me any questions and chat with me for a bit. I'm always glad to meet new friends and answer some silly questions<3!
