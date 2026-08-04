@@ -8,3 +8,5 @@ In my ata, you can ask me any questions and chat with me for a bit. I'm always g
 (Looking for friends, please!! _Please, answer me in ata!!>< I'm ready to dig into any fandoms!!_)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/8724c9fd3aee20274ea1010ccd2c59fb568a19a5/lfxqzj.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/744e558ce6b08aec2ec80e226962d6b9fa7fd638/tumblr_02857a4be7e185bb2fe7560ebca41812_97caf868_100.gif)
+
+!!WIP><!!
