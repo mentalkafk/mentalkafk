@@ -1,4 +1,4 @@
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/468fe5fa20be78dc1269a3f2b956f9dda31cdfcd/images%20(2).jpeg)
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/468fe5fa20be78dc1269a3f2b956f9dda31cdfcd/images%20(2).jpeg)
 
 my 💌[ata^^](https://mentakafk.atabook.org)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
