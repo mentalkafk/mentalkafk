@@ -3,7 +3,7 @@
 my [ata^^](https://mentakafk.atabook.org)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/92f82253.gif)Hello! I'm _Kaaazie!_ I'm very happy that you got interested in my GitHub! I appreciate it, _I really do!^^_
-I'm an artist (drawing arts of all kinds), writer, singer (a starter) and cosplayer!><
+I'm an artist (drawing all kind of arts), writer, singer (a starter) and cosplayer!><
 In my ata, you can ask me anyquestionss and chat with me for a bit.I'mm always glad to meet new friends and answer some silly questions!!<3![image alt](https://github.com/mentalkafk/mentalkafk/blob/dd64945841ef7c3122d9fb54027a8d9a6ac087c5/830858ba.gif)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)idk what is this here for,but u can listen if u want [:3](https://youtu.be/F38EuG2dAyM?is=334A9zKjUQZZqexv)
