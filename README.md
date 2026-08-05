@@ -4,7 +4,8 @@ my 💌[ata^^](https://mentakafk.atabook.org)🪽
 
 Hello! I'm _Kaaazie!_ I'm very happy that you got interested in my GitHub! I really appreciate it, _I really do!^^_
 In my ata, you can ask me any questions and chat with me for a bit. I'm always glad to meet new friends and answer some silly questions<3!
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/ee8ab668d346359a9c1903dc335f88f68d797abb/8499bccd53cc708e1cba8482784b84d8.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7095751ac47e9374d6d6e772fa0d8495ff84728b/daymrvd-e9d40493-d02e-418c-88f4-c865d2da6f9c%20(1).gif)         ![image alt](https://github.com/mentalkafk/mentalkafk/blob/7095751ac47e9374d6d6e772fa0d8495ff84728b/daymrvd-e9d40493-d02e-418c-88f4-c865d2da6f9c%20(1).gif)
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/ee8ab668d346359a9c1903dc335f88f68d797abb/8499bccd53cc708e1cba8482784b84d8.gif)
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/7095751ac47e9374d6d6e772fa0d8495ff84728b/daymrvd-e9d40493-d02e-418c-88f4-c865d2da6f9c%20(1).gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/1c485719c0e80a76e513804e8e45e93101cc18fa/tumblr_a85d3d0d90dc461ae971455550e7bc93_241a9e10_250.gif)
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/95d619c504ac70b82fd01736cdd9a8443652c91a/MyKinList%20(1).jpg)
 (Looking for friends, please!! _Please, answer me in ata!!>< I'm ready to dig into any fandoms!!_)
 
