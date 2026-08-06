@@ -18,7 +18,8 @@ ${\color{hotpink} \text{(Around our round world)}}$
 ${\color{hotpink} \text{Есть место всем на свете,}}$
 ${\color{hotpink} \text{(There's enough room for any)}}$
 ${\color{hotpink} \text{Хотя она невелика...}}$
-${\color{hotpink} \text{(Despite it being not that large...)"}}$![image alt](https://github.com/mentalkafk/mentalkafk/blob/e598a3380029a47835d70b4889a27f0abe7ef32d/WORLDWITHOUTAVIOLENCE.jpg)
+${\color{hotpink} \text{(Despite it being not that large...)"}}$
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/e598a3380029a47835d70b4889a27f0abe7ef32d/WORLDWITHOUTAVIOLENCE.jpg)
 
 Pls go support [IPB](https://ipb.org/)!(if u want)^^🙏
 
