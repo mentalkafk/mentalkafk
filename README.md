@@ -5,7 +5,7 @@ ${\color{hotpink} \text{"This world is SUCKS. But I keep living."}}$
 my [ata^^](https://mentakafk.atabook.org)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/92f82253.gif) **Kaaazie.** An artist (drawing all kind of arts), writer, singer (a starter) and cosplayer.
-In my ata, you can ask me any questions and chat with me for a bit. I'm always glad to meet new friends and answer some silly questions<3![image alt](https://github.com/mentalkafk/mentalkafk/blob/dd64945841ef7c3122d9fb54027a8d9a6ac087c5/830858ba.gif)
+In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask something!<3![image alt](https://github.com/mentalkafk/mentalkafk/blob/dd64945841ef7c3122d9fb54027a8d9a6ac087c5/830858ba.gif)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)idk what is this here for,but u can listen if u want [:3](https://youtu.be/F38EuG2dAyM?is=334A9zKjUQZZqexv)
 > I dont have Spotify<:)
