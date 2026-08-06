@@ -21,8 +21,6 @@ ${\color{hotpink} \text{Хотя она невелика...}}$
 ${\color{hotpink} \text{(Despite it being not that large...)"}}$
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/e598a3380029a47835d70b4889a27f0abe7ef32d/WORLDWITHOUTAVIOLENCE.jpg)
 
-Pls go support [IPB](https://ipb.org/)!(if u want)^^🙏
-
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)idk what is this here for,but u can listen if u want [:3](https://youtu.be/F38EuG2dAyM?is=334A9zKjUQZZqexv)
 > I dont have Spotify<:)
 
