@@ -7,18 +7,18 @@ my ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/92f82253.gif) **Kaaazie.** An artist (drawing all kind of arts), writer, singer (a starter) and cosplayer.
 In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask something!<3![image alt](https://github.com/mentalkafk/mentalkafk/blob/dd64945841ef7c3122d9fb54027a8d9a6ac087c5/830858ba.gif)
 
-${\color{hotpink} \text{" На круглой планете}}$
-${\color{hotpink} \text{(Around our round world)}}$
-${\color{hotpink} \text{Гуляет круглый ветер,}}$
-${\color{hotpink} \text{(A round wind is walking,)}}$
-${\color{hotpink} \text{По кругу гонит облака…}}$
-${\color{hotpink} \text{(And chasing clouds all around...)}}$
-${\color{hotpink} \text{На круглой планете}}$
-${\color{hotpink} \text{(Around our round world)}}$
-${\color{hotpink} \text{Есть место всем на свете,}}$
-${\color{hotpink} \text{(There's enough room for any)}}$
-${\color{hotpink} \text{Хотя она невелика...}}$
-${\color{hotpink} \text{(Despite it being not that large...)"}}$
+${\color{red} \text{" На круглой планете}}$
+${\color{red} \text{(Around our round world)}}$
+${\color{orange} \text{Гуляет круглый ветер,}}$
+${\color{orange} \text{(A round wind is walking,)}}$
+${\color{yellow} \text{По кругу гонит облака…}}$
+${\color{yellow} \text{(And chasing clouds all around...)}}$
+${\color{green} \text{На круглой планете}}$
+${\color{green} \text{(Around our round world)}}$
+${\color{blue} \text{Есть место всем на свете,}}$
+${\color{blue} \text{(There's enough room for any)}}$
+${\color{purple} \text{Хотя она невелика...}}$
+${\color{purple} \text{(Despite it being not that large...)"}}$
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/e598a3380029a47835d70b4889a27f0abe7ef32d/WORLDWITHOUTAVIOLENCE.jpg)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)idk what is this here for,but u can listen if u want [:3](https://youtu.be/f-gi8k4IRh8?is=SIagPD3VocNbHLT7), [•ω•](https://youtu.be/Tt-6Q5ri2H4?is=M0dwuYnmIlTXa6cR), [^^](https://youtu.be/elaSoKe1gFw?is=M8UTgBBZc2k-xdTK), [><](https://youtu.be/8Jk_5Yry_SE?is=Lvklwdvtws8aq_O-)
@@ -26,7 +26,8 @@ ${\color{hotpink} \text{(Despite it being not that large...)"}}$
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/767d05bb527564cd6c216d79f339cf3aa5ea1aab/silly3%20(1).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(4).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(3).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(2).jpg)
 
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/ee8ab668d346359a9c1903dc335f88f68d797abb/8499bccd53cc708e1cba8482784b84d8.gif)
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/252148399a92113406a91e30eb87529e52945a6d/6591de65a49b2e540e54ae8a8e540e4e.jpg)
+
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/7095751ac47e9374d6d6e772fa0d8495ff84728b/daymrvd-e9d40493-d02e-418c-88f4-c865d2da6f9c%20(1).gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/1c485719c0e80a76e513804e8e45e93101cc18fa/tumblr_a85d3d0d90dc461ae971455550e7bc93_241a9e10_250.gif)
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/95d619c504ac70b82fd01736cdd9a8443652c91a/MyKinList%20(1).jpg)
 > (Looking for friends, please!! _Please, response me in the ata!!>< I'm ready to dig into any fandoms!!_)
