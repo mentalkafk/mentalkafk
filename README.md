@@ -8,13 +8,13 @@ my ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16
 In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask something!<3![image alt](https://github.com/mentalkafk/mentalkafk/blob/dd64945841ef7c3122d9fb54027a8d9a6ac087c5/830858ba.gif)
 
 ${\color{red} \text{" На круглой планете}}$
-${\color{red} \text{(Around our round world)}}$
+${\color{red} \text{(On our round planet)}}$
 ${\color{orange} \text{Гуляет круглый ветер,}}$
 ${\color{orange} \text{(A round wind is walking,)}}$
 ${\color{yellow} \text{По кругу гонит облака…}}$
 ${\color{yellow} \text{(And chasing clouds all around...)}}$
 ${\color{green} \text{На круглой планете}}$
-${\color{green} \text{(Around our round world)}}$
+${\color{green} \text{(On our round planet)}}$
 ${\color{blue} \text{Есть место всем на свете,}}$
 ${\color{blue} \text{(There's enough room for any)}}$
 ${\color{purple} \text{Хотя она невелика...}}$
