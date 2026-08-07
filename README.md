@@ -29,7 +29,7 @@ ${\color{purple} \text{(Despite it being not that large...)"}}$
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/252148399a92113406a91e30eb87529e52945a6d/6591de65a49b2e540e54ae8a8e540e4e.jpg)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/7095751ac47e9374d6d6e772fa0d8495ff84728b/daymrvd-e9d40493-d02e-418c-88f4-c865d2da6f9c%20(1).gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/1c485719c0e80a76e513804e8e45e93101cc18fa/tumblr_a85d3d0d90dc461ae971455550e7bc93_241a9e10_250.gif)
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/95d619c504ac70b82fd01736cdd9a8443652c91a/MyKinList%20(1).jpg)
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/cfd8e1d934d1c27db4e93387b80a9e96710e1ba8/MyKinList.jpg)
 > (Looking for friends, please!! _Please, response me in the ata!!>< I'm ready to dig into any fandoms!!_)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f1cf421c3ffda6a9ee8f47d04a8466a4c26dc604/68747470733a2f2f77617465726d656c6f6e2e6372642e636f2f6173736574732f696d616765732f67616c6c65727931362f33653933343330642e6769663f763d3134323338626462.gif)
