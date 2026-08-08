@@ -7,20 +7,6 @@ my ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/92f82253.gif)**Kaaazie. 19 years old. non-binary.**
 In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask something!<3![image alt](https://github.com/mentalkafk/mentalkafk/blob/dd64945841ef7c3122d9fb54027a8d9a6ac087c5/830858ba.gif)
 
-${\color{red} \text{" На круглой планете}}$
-${\color{red} \text{(On our round planet)}}$
-${\color{orange} \text{Гуляет круглый ветер,}}$
-${\color{orange} \text{(A round wind is walking,)}}$
-${\color{yellow} \text{По кругу гонит облака…}}$
-${\color{yellow} \text{(And chasing clouds all around...)}}$
-${\color{green} \text{На круглой планете}}$
-${\color{green} \text{(On our round planet)}}$
-${\color{blue} \text{Есть место всем на свете,}}$
-${\color{blue} \text{(There's enough room for any)}}$
-${\color{purple} \text{Хотя она невелика...}}$
-${\color{purple} \text{(Despite it being not that large...)"}}$
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/e598a3380029a47835d70b4889a27f0abe7ef32d/WORLDWITHOUTAVIOLENCE.jpg)
-
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)idk what is this here for,but u can listen if u want [:3](https://youtu.be/f-gi8k4IRh8?is=SIagPD3VocNbHLT7), [•ω•](https://youtu.be/Tt-6Q5ri2H4?is=M0dwuYnmIlTXa6cR), [^^](https://youtu.be/elaSoKe1gFw?is=M8UTgBBZc2k-xdTK), [><](https://youtu.be/8Jk_5Yry_SE?is=Lvklwdvtws8aq_O-)
 > I dont have Spotify<:)
 
