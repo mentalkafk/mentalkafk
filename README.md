@@ -29,5 +29,5 @@ here my dni list(if you in there, then please dni with me. Srs pls don't:/): Hom
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/426027fb51e7c2821369ac50092bb0376e16301d/d9nm4fu-cdc8feae-ce4b-4e38-b0b0-a56a80337b80.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/225b4cac41c983c5120a5161669436c116b2c0ed/623420481-1f688a7c-878f-442d-b125-e64a1a31e844.png)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/191f916c505332069d3581c10ba973ae05e39eaf/ct1ihn.gif) 
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/36454fa61429b7cf2ad4869919abb6e572c48f07/friend.jpg) 
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/6ee8c1d8f63245599f8abc71dcaf588ac8df20d5/Char_12_rin_main.gif) 
 !!WIP>!!
