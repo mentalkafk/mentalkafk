@@ -2,6 +2,8 @@
 
  ${\color{blue} \text{"This world is}}$ ${\color{hotpink} \text{SUCK.}}$ ${\color{purple}\text{But I keep living."}}$
 
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/767d05bb527564cd6c216d79f339cf3aa5ea1aab/silly3%20(1).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(4).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(3).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(2).jpg)
+
 my ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)[ata](https://mentakafk.atabook.org) and [straw(berry)page^^](https://mentalkafk.straw.page)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/92f82253.gif)**Kaaazie. 19 years old. non-binary.**
@@ -12,8 +14,6 @@ In my ata, you can ask me any questions and chat with me for a bit. Feel free to
 
 here my dni list(if you in there, then please dni with me. Srs pls don't:/): Homophobes, zoophiles, racists, sexists, necrophiles, pedophiles
 /MAPs/predators/😭💢, schoolshooting fans, cannibals, rude people (only if VERY rude), radical fanatics of anything, darkshippers, proshippers, drug and any addicts, bullers, stalkers and its fans, lolicons, knickers, "they're pretty they're allowed to do this" shit, incest fans, abusers (ANY. Even women. it's still abuse.), MEOWBAHH/BELLA THE WOLF/LUU_KKI OR ANY PROBLEMATIC PPLS,  FANS, Nazis, Trump fans, Religious fanatics and the ones who support all of that or related to those.(the list will be updated...)
-
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/767d05bb527564cd6c216d79f339cf3aa5ea1aab/silly3%20(1).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(4).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(3).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(2).jpg)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/252148399a92113406a91e30eb87529e52945a6d/6591de65a49b2e540e54ae8a8e540e4e.jpg)
 
