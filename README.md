@@ -1,6 +1,6 @@
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/468fe5fa20be78dc1269a3f2b956f9dda31cdfcd/images%20(2).jpeg)
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/b2059f98581006596b0207fc27b925c99a0c4e6c/fbcb6c0e9bd6ccdc3447a556da6a8f6e.jpg)
 
-${\color{hotpink} \text{"This world is SUCK. But I keep living."}}$
+ ${\color{blue} \text{"This world is}}$ ${\color{hotpink} \text{SUCK.}}$ ${\color{purple}\text{But I keep living."}}$
 
 my ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)[ata](https://mentakafk.atabook.org) and [straw(berry)page^^](https://mentalkafk.straw.page)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
