@@ -1,6 +1,6 @@
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/b2059f98581006596b0207fc27b925c99a0c4e6c/fbcb6c0e9bd6ccdc3447a556da6a8f6e.jpg)
 
- ${\color{blue} \text{"This world is}}$ ${\color{hotpink} \text{SUCK.}}$ ${\color{purple}\text{But I keep living."}}$
+${\color{blue} \text{"The gentle tinkling of bells on the wind}}$   ${\color{hotpink} \text{Is so soothing...}}$ ${\color{purple}\text{Don't you agree?.."}}$
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/767d05bb527564cd6c216d79f339cf3aa5ea1aab/silly3%20(1).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(4).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(3).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(2).jpg)
 
