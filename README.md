@@ -3,7 +3,11 @@
 ${\text{\color{#7BC5E6}"The gentle tinkling of bells on the wind}}$   ${\text{\color{#DCA0FF}Is so soothing...}}$ ${\text{\color{#9875D3}Don't you agree?.."}}$
 
 
+<div align="center">
+
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/767d05bb527564cd6c216d79f339cf3aa5ea1aab/silly3%20(1).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(4).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(3).jpg)![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(2).jpg)
+
+</div>
 
 my ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)[ata](https://mentakafk.atabook.org) and [straw(berry)page^^](https://mentalkafk.straw.page)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
