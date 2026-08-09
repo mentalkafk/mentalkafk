@@ -6,6 +6,8 @@ ${\color{blue} \text{"The gentle tinkling of bells on the wind}}$   ${\color{hot
 
 my ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)[ata](https://mentakafk.atabook.org) and [straw(berry)page^^](https://mentalkafk.straw.page)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
+Bananchiki❤️❤️❤️
+
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/92f82253.gif)**Kaaazie. 19 years old. non-binary.**
 In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask something!<3![image alt](https://github.com/mentalkafk/mentalkafk/blob/dd64945841ef7c3122d9fb54027a8d9a6ac087c5/830858ba.gif)
 
@@ -29,4 +31,4 @@ here my dni list(if you in there, then please dni with me. Srs pls don't:/): Hom
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/426027fb51e7c2821369ac50092bb0376e16301d/d9nm4fu-cdc8feae-ce4b-4e38-b0b0-a56a80337b80.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/225b4cac41c983c5120a5161669436c116b2c0ed/623420481-1f688a7c-878f-442d-b125-e64a1a31e844.png)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/77403c22f9ee787bdbc9e21fcacadacb24bf6c5e/294f88cc84335ecc622184a86980ff09.jpg) 
-!!WIP>!!
+!!WIP><!!
