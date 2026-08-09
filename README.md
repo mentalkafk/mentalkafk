@@ -1,7 +1,11 @@
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/b2059f98581006596b0207fc27b925c99a0c4e6c/fbcb6c0e9bd6ccdc3447a556da6a8f6e.jpg)
 
+<div align="center">
+
 ${\text{\color{#7BC5E6}"The gentle tinkling of bells on the wind}}$   ${\text{\color{#DCA0FF}Is so soothing...}}$ ${\text{\color{#9875D3}Don't you agree?.."}}$
 
+
+</div>
 
 <div align="center">
 
