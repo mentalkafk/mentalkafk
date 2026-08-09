@@ -14,7 +14,7 @@ In my ata, you can ask me any questions and chat with me for a bit. Feel free to
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)idk what is this here for,but u can listen if u want [:3](https://youtu.be/f-gi8k4IRh8?is=SIagPD3VocNbHLT7), [•ω•](https://youtu.be/Tt-6Q5ri2H4?is=M0dwuYnmIlTXa6cR), [^^](https://youtu.be/elaSoKe1gFw?is=M8UTgBBZc2k-xdTK), [><](https://youtu.be/8Jk_5Yry_SE?is=Lvklwdvtws8aq_O-)
 > I dont have Spotify<:)
 
-here my dni list(if you in there, then please dni with me. Srs pls don't:/): Homophobes, zoophiles, racists, sexists, necrophiles, pedophiles
+here my dni list(if you in there, then please dni with me. Srs pls don't:/): Homophobes, zoophiles, racists, sexists, necrophiles, transphobes, pedophiles
 /MAPs/predators/😭💢, schoolshooting fans, cannibals, rude people (only if VERY rude), radical fanatics of anything, darkshippers, proshippers, drug and any addicts, bullers, stalkers and its fans, lolicons, knickers, "they're pretty they're allowed to do this" shit, incest fans, abusers (ANY. Even women. it's still abuse.), MEOWBAHH/BELLA THE WOLF/LUU_KKI OR ANY PROBLEMATIC PPLS,  FANS, Nazis, Trump fans, Religious fanatics and the ones who support all of that or related to those.(the list will be updated...)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/252148399a92113406a91e30eb87529e52945a6d/6591de65a49b2e540e54ae8a8e540e4e.jpg)
