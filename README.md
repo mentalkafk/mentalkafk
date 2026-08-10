@@ -19,7 +19,7 @@ my ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16
 
 [🫧🌱](https://youtube.com/playlist?list=PLNoJ-jBBofgR_EJkFMaXmKCLm9TtdAYTw&si=0ZAvI89P2z6m26AV)
 
-</Dev>
+</div>
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/92f82253.gif)**Kaaazie. 19 years old. non-binary. identify myself as a crystal doll.**
 In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask something!<3![image alt](https://github.com/mentalkafk/mentalkafk/blob/dd64945841ef7c3122d9fb54027a8d9a6ac087c5/830858ba.gif)
