@@ -28,7 +28,7 @@ In my ata, you can ask me any questions and chat with me for a bit. Feel free to
 > I dont have Spotify<:)
 
 <img src="https://github.com/mentalkafk/mentalkafk/blob/34e46c70a0696e4a66f5eded94bd35478ec6930b/Cookie0605s01-hang.gif" width="150">here my dni list(if you in there, then please dni with me. Srs pls don't:/): Homophobes, zoophiles, racists, sexists, necrophiles, transphobes, pedophiles
-/MAPs/predators/😭💢, schoolshooting fans, cannibals, rude people (only if VERY rude), radical fanatics of anything, darkshippers, proshippers, drug and any addicts, bullers, stalkers and its fans, lolicons, knickers, "they're pretty they're allowed to do this" shit, incest fans, abusers (ANY. Even women. it's still abuse.), MEOWBAHH/BELLA THE WOLF/LUU_KKI OR ANY PROBLEMATIC PPLS  FANS, Nazis, Trump fans, Religious fanatics and the ones who support all of that or related to those.(the list will be updated...)
+/MAPs/predators/😭💢, schoolshooting fans, cannibals, rude people (only if VERY rude), radical fanatics of anything, darkshippers, proshippers, drug and any addicts, bullers, stalkers and its fans, lolicons, knickers, "they're pretty they're allowed to do this" shit, incest, abusers (ANY. Even women. it's still abuse.), MEOWBAHH/BELLA THE WOLF/LUU_KKI OR ANY PROBLEMATIC PPLS  FANS, Nazis, Trump fans, Religious fanatics and the ones who support all of that or related to those.(the list will be updated...)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/252148399a92113406a91e30eb87529e52945a6d/6591de65a49b2e540e54ae8a8e540e4e.jpg)
 
