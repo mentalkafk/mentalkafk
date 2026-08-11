@@ -2,7 +2,7 @@
 
 <div align="center">
 
-${\text{\color{#7BC5E6}"The gentle tinkling of bells on the wind}}$   ${\text{\color{#DCA0FF}Is so soothing...}}$ ${\text{\color{#9875D3}Don't you agree?.."}}$
+<img src="https://github.com/mentalkafk/mentalkafk/blob/9dbcda3a465323e23ec0949cff674fa396047a7b/Ink_for_a_tragicomedy_bg_obj2_.webp%20(10).png" width="200">${\text{\color{#7BC5E6}"The gentle tinkling of bells on the wind}}$   ${\text{\color{#DCA0FF}Is so soothing...}}$ ${\text{\color{#9875D3}Don't you agree?.."}}$
 
 </div>
 
