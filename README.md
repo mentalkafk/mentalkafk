@@ -9,13 +9,13 @@ ${\text{\color{#7BC5E6}"No matter}}$   ${\text{\color{#DCA0FF}where you go,}}$ $
 
 <div align="center">
 
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)my [ata](https://mentakafk.atabook.org) and [straw(berry)page^^](https://mentalkafk.straw.page)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
+[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp.png" width="50">](https://youtu.be/6QD9Bch86vc?si=pJ8Lyz3jBs3ZCjGE)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(1).png" width="50">](https://youtu.be/MkgjK1gOBj8?si=P_7LeKvaTvA7sq50)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(2).png" width="50">](https://youtu.be/mY_Xlw_cJFA?si=mh_wIHCj3m8PjiIw)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(6).png" width="50">](https://youtu.be/v9rbbNKKjYM?si=OsN62PSjonGS8lDH)
 
 </div>
 
 <div align="center">
 
-[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp.png" width="50">](https://youtu.be/6QD9Bch86vc?si=pJ8Lyz3jBs3ZCjGE)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(1).png" width="50">](https://youtu.be/MkgjK1gOBj8?si=P_7LeKvaTvA7sq50)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(2).png" width="50">](https://youtu.be/mY_Xlw_cJFA?si=mh_wIHCj3m8PjiIw)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(6).png" width="50">](https://youtu.be/v9rbbNKKjYM?si=OsN62PSjonGS8lDH)
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)my [ata](https://mentakafk.atabook.org) and [straw(berry)page^^](https://mentalkafk.straw.page)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
 </div>
 
