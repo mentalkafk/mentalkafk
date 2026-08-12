@@ -37,13 +37,15 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 <img align="left" width="170" height="180" src="https://github.com/mentalkafk/mentalkafk/blob/5343b8399cc1e1f562736e6ca3673fe82f178d35/ink-for-a-tragicomedy-eternal-sugar-cookie.gif">🌸ִ፝֠    ׄ  𝒾𝓃𝓀 𝒻𝑜𝓇 𝒶 𝓉𝓇𝒶𝑔𝓎𝒸𝑜𝓂𝑒𝒹𝓎  "ʜᴇ ʜᴇ... ᴏᴜʀ sʜᴏᴡ ᴡɪʟʟ ɢᴏ ᴏɴ ғᴏʀᴇᴠᴇʀ ᴀɴᴅ ᴇᴠᴇʀ~!"   ִ   ⁞⁞   ׄ   ୫୫  ִ
 
 <img align="right" width="170" height="180" src="https://github.com/mentalkafk/mentalkafk/blob/51a9e44849addc535eb8b06f24a4a8fc518280ac/An_Ad-lib_Ending_Gacha_Animation%20(2).gif">ᦷ💧ᦡ ִ    ׄ   "ᴡʜᴇɴ ɪ'ᴍ ᴏɴ sᴛᴀɢᴇ, ᴛʜᴇʀᴇ's ɴᴏ ᴏɴᴇ ᴇʟsᴇ, ׄ   𐧼   ִ   ʙᴜᴛ ᴍᴇ!"   ׄ    ִ 𝒶𝓃 𝒶𝒹-𝓁𝒾𝒷 𝑒𝓃𝒹𝒾𝓃𝑔 ⢾⌒ׄ⏜
->ɴᴏᴛ ᴀ sʜɪᴘ.
->>ᴏʀ ᴀ sʜɪᴘ.
->>>ᴛᴀᴋᴇ ɪᴛ ᴀs ᴀɴʏᴛʜɪɴɢ ᴜ ᴡᴀɴᴛ.😛😛
+> ɴᴏᴛ ᴀ sʜɪᴘ. 
+>> ᴏʀ ᴀ sʜɪᴘ.
+>>> ᴛᴀᴋᴇ ɪᴛ ᴀs ᴡʜᴀᴛᴇᴠᴇʀ ʏᴏᴜ ᴡᴀɴᴛ.😛😛
 
 
-<img align="left" width="90" height="90" src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png">  
-⊹    ׅ    🪬᳕   "ᴍᴇɴs' ᴀʀᴇ sᴏ ʜᴏᴛ." —ᴛʜᴇ ғɪʀsᴛ ʜᴇᴀᴅᴍᴀsᴛᴇʀ ғʀғʀ  ☆   !͟!
+<img align="left" width="120" height="120" src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png">  
+⊹    ׅ    🪬᳕   "ʙʀᴏ sʜᴜᴛ ᴜᴘ ᴀɴᴅ sʜᴏᴡ ᴍᴇ ᴜʀ ʜᴏᴍᴇᴡᴏʀᴋ ʙᴇғᴏʀᴇ ɪ ᴄʀᴀᴄᴋ ᴜ ʀɪɢʜᴛ ᴏɴ ᴛʜᴇ ᴅᴇsᴋ." ﹆ׄ﹅ׅㅤׅׄ    ׅ⌒⁞⸽   ׄ ֪ 
+
+—ᴛʜᴇ ғɪʀsᴛ ʜᴇᴀᴅᴍᴀsᴛᴇʀ ғʀғʀ("ˊᗜˋ")  ☆   !͟!
 
 
 <div align="center">
@@ -53,7 +55,7 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 </div>
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/cfd8e1d934d1c27db4e93387b80a9e96710e1ba8/MyKinList.jpg)
-> (Looking for friends, please!! _Please, response me in the ata!!>< I'm ready to dig into any fandoms!!_)
+> (Looking for friends!! _Please, response me in the ata!!>< I'm ready to dig into any fandoms!!_)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f1cf421c3ffda6a9ee8f47d04a8466a4c26dc604/68747470733a2f2f77617465726d656c6f6e2e6372642e636f2f6173736574732f696d616765732f67616c6c65727931362f33653933343330642e6769663f763d3134323338626462.gif)
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/de9ef62d4f815d0e0710b44fdf6e1ece6a2ab84e/tumblr_inline_pdytheeiYC1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/de9ef62d4f815d0e0710b44fdf6e1ece6a2ab84e/tumblr_inline_pdytriJUHZ1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/de9ef62d4f815d0e0710b44fdf6e1ece6a2ab84e/tumblr_inline_pdytl4pE4v1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/de9ef62d4f815d0e0710b44fdf6e1ece6a2ab84e/tumblr_inline_pdytr7BNER1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/9838c5a8b0330e7a9085d2172588b5be07e4b46a/tumblr_inline_pdzdumzrRo1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/9838c5a8b0330e7a9085d2172588b5be07e4b46a/tumblr_inline_pdytmcffup1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/9838c5a8b0330e7a9085d2172588b5be07e4b46a/tumblr_inline_pdytm41gIG1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/9838c5a8b0330e7a9085d2172588b5be07e4b46a/tumblr_inline_pdytl4pE4v1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/9838c5a8b0330e7a9085d2172588b5be07e4b46a/tumblr_inline_pdytubjXlL1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/9838c5a8b0330e7a9085d2172588b5be07e4b46a/tumblr_inline_pdzd4eofBC1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2ad76df014d01015d95341e8c0990cac6ea4342e/tumblr_inline_pdytvyVT1r1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2ad76df014d01015d95341e8c0990cac6ea4342e/tumblr_inline_pdzfd3UDqq1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2ad76df014d01015d95341e8c0990cac6ea4342e/tumblr_inline_pdzdv340tG1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2ad76df014d01015d95341e8c0990cac6ea4342e/tumblr_inline_pdzdvbHKtn1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2ad76df014d01015d95341e8c0990cac6ea4342e/tumblr_inline_pdzdwmo3oY1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2ad76df014d01015d95341e8c0990cac6ea4342e/tumblr_inline_pdzfc15B5z1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2ad76df014d01015d95341e8c0990cac6ea4342e/tumblr_inline_pdytolGmdr1v11djx_500.gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/f8578d8923bd52d5bd23bae5107e547692819a77/k7kog9.gif)
