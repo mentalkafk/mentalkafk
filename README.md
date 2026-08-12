@@ -43,7 +43,9 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 </div>
 
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/7095751ac47e9374d6d6e772fa0d8495ff84728b/daymrvd-e9d40493-d02e-418c-88f4-c865d2da6f9c%20(1).gif)![image alt](https://github.com/mentalkafk/mentalkafk/blob/1c485719c0e80a76e513804e8e45e93101cc18fa/tumblr_a85d3d0d90dc461ae971455550e7bc93_241a9e10_250.gif)
+| <img src="https://github.com/mentalkafk/mentalkafk/blob/c68a7ccbebb083fe3957ecf3e99516cc6c1f7ffa/Cookie_ink_for_a_tragicomedy_cloud-skill2_cloud.gif" width="60">  | 𝆺𝅥 ۫   ๋ 𝅄 ʟᴇʟᴇʟᴇʟᴇʟᴇʟᴇ ɪᴅᴋ ᴡʜᴀᴛ ᴛᴏ ᴘᴜᴛ ɪɴ ʜᴇʀᴇ ʙʟᴇʜʜʜ ° .🌕 ׄ  ꯭❀ |
+| ------------- | ------------- |
+
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/cfd8e1d934d1c27db4e93387b80a9e96710e1ba8/MyKinList.jpg)
 > (Looking for friends, please!! _Please, response me in the ata!!>< I'm ready to dig into any fandoms!!_)
 
