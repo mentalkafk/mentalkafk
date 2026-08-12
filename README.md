@@ -43,7 +43,7 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 </div>
 
-| <img src="https://github.com/mentalkafk/mentalkafk/blob/c68a7ccbebb083fe3957ecf3e99516cc6c1f7ffa/Cookie_ink_for_a_tragicomedy_cloud-skill2_cloud.gif" width="60">  | 𝆺𝅥 ۫   ๋ 𝅄 ʟᴇʟᴇʟᴇʟᴇʟᴇʟᴇ ɪᴅᴋ ᴡʜᴀᴛ ᴛᴏ ᴘᴜᴛ ɪɴ ʜᴇʀᴇ ʙʟᴇʜʜʜ ° .🌕 ׄ  ꯭❀ |
+| <img src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png" width="500">  | 𝆺𝅥 ۫   ๋ 𝅄 🥛ᴀ ǫᴜᴇsᴛɪᴏɴ ɪs ᴛʜᴇ ғɪʀsᴛ sᴛᴇᴘ ᴛᴏᴡᴀʀᴅ ᴋɴᴏᴡʟᴇᴅɢᴇ.✡️ ׄ  ꯭❀ |
 | ------------- | ------------- |
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/cfd8e1d934d1c27db4e93387b80a9e96710e1ba8/MyKinList.jpg)
