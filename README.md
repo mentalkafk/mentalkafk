@@ -32,7 +32,7 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 <img align="left" width="170" height="180" src="https://github.com/mentalkafk/mentalkafk/blob/5343b8399cc1e1f562736e6ca3673fe82f178d35/ink-for-a-tragicomedy-eternal-sugar-cookie.gif">🌸ִ፝֠    ׄ  𝒾𝓃𝓀 𝒻𝑜𝓇 𝒶 𝓉𝓇𝒶𝑔𝓎𝒸𝑜𝓂𝑒𝒹𝓎  "ʜᴇ ʜᴇ... ᴏᴜʀ sʜᴏᴡ ᴡɪʟʟ ɢᴏ ᴏɴ ғᴏʀᴇᴠᴇʀ ᴀɴᴅ ᴇᴠᴇʀ~!"   ִ   ⁞⁞   ׄ   ୫୫  ִ
 
-<img align="right" width="170" height="180" src="https://github.com/mentalkafk/mentalkafk/blob/51a9e44849addc535eb8b06f24a4a8fc518280ac/An_Ad-lib_Ending_Gacha_Animation%20(2).gif">ᦷ💧ᦡ ִ    ׄ   ᴡʜᴇɴ ɪ'ᴍ ᴏɴ sᴛᴀɢᴇ, ᴛʜᴇʀᴇ's ɴᴏ ᴏɴᴇ ᴇʟsᴇ, ׄ   𐧼   ִ   ʙᴜᴛ ᴍᴇ!   ׄ    ִ 𝒶𝓃 𝒶𝒹-𝓁𝒾𝒷 𝑒𝓃𝒹𝒾𝓃𝑔 ⢾⌒ׄ⏜
+<img align="right" width="170" height="180" src="https://github.com/mentalkafk/mentalkafk/blob/51a9e44849addc535eb8b06f24a4a8fc518280ac/An_Ad-lib_Ending_Gacha_Animation%20(2).gif">ᦷ💧ᦡ ִ    ׄ   "ᴡʜᴇɴ ɪ'ᴍ ᴏɴ sᴛᴀɢᴇ, ᴛʜᴇʀᴇ's ɴᴏ ᴏɴᴇ ᴇʟsᴇ, ׄ   𐧼   ִ   ʙᴜᴛ ᴍᴇ!"   ׄ    ִ 𝒶𝓃 𝒶𝒹-𝓁𝒾𝒷 𝑒𝓃𝒹𝒾𝓃𝑔 ⢾⌒ׄ⏜
 >ɴᴏᴛ ᴀ sʜɪᴘ.
 >>ᴏʀ ᴀ sʜɪᴘ.
 >>>ᴛᴀᴋᴇ ɪᴛ ᴀs ᴀɴʏᴛʜɪɴɢ ᴜ ᴡᴀɴᴛ:ᴘ
