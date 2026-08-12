@@ -41,7 +41,7 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 </div>
 
-| <img src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png" width="500">  | 𝆺𝅥 ۫   ๋ 𝅄 🥛ᴀ ǫᴜᴇsᴛɪᴏɴ ɪs ᴛʜᴇ ғɪʀsᴛ sᴛᴇᴘ ᴛᴏᴡᴀʀᴅ ᴋɴᴏᴡʟᴇᴅɢᴇ.✡️ ׄ  ꯭❀ |
+| <img src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png" width="500">  | 𝆺𝅥 ۫   ๋ 𝅄 🥛lelelelelelellele idk what to type here maybe smth smart ° .🌕 ׄ  ꯭❀ |
 | ------------- | ------------- |
 
 <div align="center">
