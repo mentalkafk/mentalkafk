@@ -1,7 +1,7 @@
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/b2059f98581006596b0207fc27b925c99a0c4e6c/fbcb6c0e9bd6ccdc3447a556da6a8f6e.jpg)
 
 <div align="center">
-<img src="https://github.com/mentalkafk/mentalkafk/blob/9dbcda3a465323e23ec0949cff674fa396047a7b/Ink_for_a_tragicomedy_bg_obj2_.webp%20(10).png" width="200">
+<img src="https://github.com/mentalkafk/mentalkafk/blob/9dbcda3a465323e23ec0949cff674fa396047a7b/Ink_for_a_tragicomedy_bg_obj2_.webp%20(10).png" width="250" height="100">
   
 ${\text{\color{#7BC5E6}"No matter}}$   ${\text{\color{#DCA0FF}where you go,}}$ ${\text{\color{#9875D3}everyone's connected.."}}$
 
