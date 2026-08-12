@@ -16,11 +16,18 @@ ${\text{\color{#7BC5E6}"どこにい
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)my [ata](https://mentakafk.atabook.org) and [straw(berry)page^^](https://mentalkafk.straw.page)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
 <img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(5).png" width="30">**Kaaazie. 19 y.o. non-binary.<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(3).png" width="30"> identify myself as a crystal doll.**
-In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask something!<3<img align="left" width="30" height="30" src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(7).png"><img align="right" width="30" height="30" src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(8).png">
+In my ata, u can ask me any questions and chat with me for a bit. Feel free to express ur thoughts and ask anything!<3<img align="left" width="70" height="70" src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(7).png"><img align="right" width="70" height="70" src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(8).png">
 
 </div>
 
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)idk what is this here for,but u can listen if u want [![image alt](https://github.com/mentalkafk/mentalkafk/blob/767d05bb527564cd6c216d79f339cf3aa5ea1aab/silly3%20(1).jpg)](https://youtu.be/f-gi8k4IRh8?is=SIagPD3VocNbHLT7), [![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(4).jpg)](https://youtu.be/Tt-6Q5ri2H4?is=M0dwuYnmIlTXa6cR), [![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(3).jpg)](https://youtu.be/elaSoKe1gFw?is=M8UTgBBZc2k-xdTK), [![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(2).jpg)](https://youtu.be/8Jk_5Yry_SE?is=Lvklwdvtws8aq_O-)
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/e5cd5173e2efc78fd9b3e2da18983258221bb369/SSAoRXx.gif)idk what is this here for,but u can listen if u want **↓**
+
+<div align="center">
+
+[![image alt](https://github.com/mentalkafk/mentalkafk/blob/767d05bb527564cd6c216d79f339cf3aa5ea1aab/silly3%20(1).jpg)](https://youtu.be/f-gi8k4IRh8?is=SIagPD3VocNbHLT7), [![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(4).jpg)](https://youtu.be/Tt-6Q5ri2H4?is=M0dwuYnmIlTXa6cR), [![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(3).jpg)](https://youtu.be/elaSoKe1gFw?is=M8UTgBBZc2k-xdTK), [![image alt](https://github.com/mentalkafk/mentalkafk/blob/7529648167ad717a57c4dfbd89916653122ee3b4/silly3%20(2).jpg)](https://youtu.be/8Jk_5Yry_SE?is=Lvklwdvtws8aq_O-)
+
+</div>
+
 > Trust me;3
 
 <img align="left" width="170" height="180" src="https://github.com/mentalkafk/mentalkafk/blob/5343b8399cc1e1f562736e6ca3673fe82f178d35/ink-for-a-tragicomedy-eternal-sugar-cookie.gif">🌸ִ፝֠    ׄ  𝒾𝓃𝓀 𝒻𝑜𝓇 𝒶 𝓉𝓇𝒶𝑔𝓎𝒸𝑜𝓂𝑒𝒹𝓎  "ʜᴇ ʜᴇ... ᴏᴜʀ sʜᴏᴡ ᴡɪʟʟ ɢᴏ ᴏɴ ғᴏʀᴇᴠᴇʀ ᴀɴᴅ ᴇᴠᴇʀ~!"   ִ   ⁞⁞   ׄ   ୫୫  ִ
