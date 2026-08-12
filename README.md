@@ -20,7 +20,7 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 </div>
 
-<img src="https://github.com/mentalkafk/mentalkafk/blob/d7e579d6100e01b99bf3d26aaffa2d307f65f974/sjms.png" width="50">idk what is this here for,but u can listen if u want 
+<img src="https://github.com/mentalkafk/mentalkafk/blob/d7e579d6100e01b99bf3d26aaffa2d307f65f974/sjms.png" width="70">idk what is this here for,but u can listen if u want 
 <div align="center">
 ↓
 </div>
