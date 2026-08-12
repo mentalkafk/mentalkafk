@@ -37,8 +37,10 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 >>ᴏʀ ᴀ sʜɪᴘ.
 >>>ᴛᴀᴋᴇ ɪᴛ ᴀs ᴀɴʏᴛʜɪɴɢ ᴜ ᴡᴀɴᴛ.😛😛
 
-| <img src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png" width="500">  | 𝆺𝅥 ۫   ๋ 𝅄 🥛lelelelelelellele idk what to type here maybe smth smart ° .🌕 ׄ  ꯭❀ |
-| ------------- | ------------- |
+
+<img align="left" width="90" height="90" src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png">  
+⊹    ׅ    🪬᳕   "ᴍᴇɴs' ᴀʀᴇ sᴏ ʜᴏᴛ." —ᴛʜᴇ ғɪʀsᴛ ʜᴇᴀᴅᴍᴀsᴛᴇʀ ғʀғʀ  ☆   !͟!
+
 
 <div align="center">
 
