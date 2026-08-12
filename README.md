@@ -3,7 +3,7 @@
 <div align="center">
 <img src="https://github.com/mentalkafk/mentalkafk/blob/9dbcda3a465323e23ec0949cff674fa396047a7b/Ink_for_a_tragicomedy_bg_obj2_.webp%20(10).png" width="250" height="100">
   
-${\text{\color{#7BC5E6}"no matter}}$   ${\text{\color{#DCA0FF}where you are,}}$ ${\text{\color{#9875D3}people's are always connected.."}}$
+${\text{\color{#7BC5E6}"no matter where you are, }}$   ${\text{\color{#DCA0FF}people's are always}}$ ${\text{\color{#9875D3}connected.."}}$
 </div>
 
 <div align="center">
