@@ -15,7 +15,7 @@ ${\text{\color{#7BC5E6}"The gentle tinkling of bells on the wind}}$   ${\text{\c
 
 <div align="center">
 
-[🫧🌱](https://youtube.com/playlist?list=PLNoJ-jBBofgR_EJkFMaXmKCLm9TtdAYTw&si=0ZAvI89P2z6m26AV)
+[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp.png" width="50">](https://youtu.be/6QD9Bch86vc?si=pJ8Lyz3jBs3ZCjGE)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(1).png" width="50">](https://youtu.be/MkgjK1gOBj8?si=P_7LeKvaTvA7sq50)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(2).png" width="50">](https://youtu.be/mY_Xlw_cJFA?si=mh_wIHCj3m8PjiIw)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(6).png" width="50">](https://youtu.be/THRtKGX-czY?si=VIat-7CgVZUqC3L5)
 
 </div>
 
