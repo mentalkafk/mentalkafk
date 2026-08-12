@@ -35,11 +35,7 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 <img align="right" width="170" height="180" src="https://github.com/mentalkafk/mentalkafk/blob/51a9e44849addc535eb8b06f24a4a8fc518280ac/An_Ad-lib_Ending_Gacha_Animation%20(2).gif">ᦷ💧ᦡ ִ    ׄ   "ᴡʜᴇɴ ɪ'ᴍ ᴏɴ sᴛᴀɢᴇ, ᴛʜᴇʀᴇ's ɴᴏ ᴏɴᴇ ᴇʟsᴇ, ׄ   𐧼   ִ   ʙᴜᴛ ᴍᴇ!"   ׄ    ִ 𝒶𝓃 𝒶𝒹-𝓁𝒾𝒷 𝑒𝓃𝒹𝒾𝓃𝑔 ⢾⌒ׄ⏜
 >ɴᴏᴛ ᴀ sʜɪᴘ.
 >>ᴏʀ ᴀ sʜɪᴘ.
->>>ᴛᴀᴋᴇ ɪᴛ ᴀs ᴀɴʏᴛʜɪɴɢ ᴜ ᴡᴀɴᴛ:ᴘ
-
-<div align="center">
-
-</div>
+>>>ᴛᴀᴋᴇ ɪᴛ ᴀs ᴀɴʏᴛʜɪɴɢ ᴜ ᴡᴀɴᴛ ɪ ᴊᴜsᴛ ʟɪᴋᴇ ᴛʜᴇ ᴀɴɪᴍᴀᴛɪᴏɴs.😛😛
 
 | <img src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png" width="500">  | 𝆺𝅥 ۫   ๋ 𝅄 🥛lelelelelelellele idk what to type here maybe smth smart ° .🌕 ׄ  ꯭❀ |
 | ------------- | ------------- |
