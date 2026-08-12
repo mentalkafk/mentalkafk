@@ -9,7 +9,7 @@ ${\text{\color{#7BC5E6}"No matter}}$   ${\text{\color{#DCA0FF}where you go,}}$ $
 <div align="center">
   
 ${\text{\color{#7BC5E6}"どこにい
-たって、}}$   ${\text{\color{#DCA0FF}人はつながっている}}$ ${\text{\color{#9875D3}のよ"}}$
+たって、}}$   ${\text{\color{#DCA0FF}人はつながっている}}$ ${\text{\color{#9875D3}のよ.."}}$
 
 [<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp.png" width="50">](https://youtu.be/6QD9Bch86vc?si=pJ8Lyz3jBs3ZCjGE)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(1).png" width="50">](https://youtu.be/MkgjK1gOBj8?si=P_7LeKvaTvA7sq50)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(2).png" width="50">](https://youtu.be/mY_Xlw_cJFA?si=mh_wIHCj3m8PjiIw)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(6).png" width="50">](https://youtu.be/v9rbbNKKjYM?si=OsN62PSjonGS8lDH)
 
