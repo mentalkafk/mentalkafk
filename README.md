@@ -39,12 +39,16 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 <div align="center">
 
-![image alt](https://github.com/mentalkafk/mentalkafk/blob/ab185c40c91e4c2bc90940274341e82edbe1e3ff/Ink_for_a_tragicomedy_bg_obj2_.webp%20(9).png)
-
 </div>
 
 | <img src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png" width="500">  | 𝆺𝅥 ۫   ๋ 𝅄 🥛ᴀ ǫᴜᴇsᴛɪᴏɴ ɪs ᴛʜᴇ ғɪʀsᴛ sᴛᴇᴘ ᴛᴏᴡᴀʀᴅ ᴋɴᴏᴡʟᴇᴅɢᴇ.✡️ ׄ  ꯭❀ |
 | ------------- | ------------- |
+
+<div align="center">
+
+![image alt](https://github.com/mentalkafk/mentalkafk/blob/ab185c40c91e4c2bc90940274341e82edbe1e3ff/Ink_for_a_tragicomedy_bg_obj2_.webp%20(9).png)
+
+</div>
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/cfd8e1d934d1c27db4e93387b80a9e96710e1ba8/MyKinList.jpg)
 > (Looking for friends, please!! _Please, response me in the ata!!>< I'm ready to dig into any fandoms!!_)
