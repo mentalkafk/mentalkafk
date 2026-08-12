@@ -16,8 +16,7 @@ ${\text{\color{#7BC5E6}"どこにい
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)my [ata](https://mentakafk.atabook.org) and [straw(berry)page^^](https://mentalkafk.straw.page)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
 <img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(5).png" width="30">**Kaaazie. 19 y.o. non-binary.<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(3).png" width="30"> identify myself as a crystal doll.**
-In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask 
-something!<3<img align="left" width="30" height="30" src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(7).png"><img align="right" width="30" height="30" src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(8).png">
+In my ata, you can ask me any questions and chat with me for a bit. Feel free to express your thoughts and ask something!<3<img align="left" width="30" height="30" src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(7).png"><img align="right" width="30" height="30" src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(8).png">
 
 </div>
 
