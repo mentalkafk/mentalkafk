@@ -32,7 +32,7 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 </div>
 
-> Trust me;3
+> I love listening to music lol(◍•ᴗ•◍)
 
 <img align="left" width="170" height="180" src="https://github.com/mentalkafk/mentalkafk/blob/5343b8399cc1e1f562736e6ca3673fe82f178d35/ink-for-a-tragicomedy-eternal-sugar-cookie.gif">🌸ִ፝֠    ׄ  𝒾𝓃𝓀 𝒻𝑜𝓇 𝒶 𝓉𝓇𝒶𝑔𝓎𝒸𝑜𝓂𝑒𝒹𝓎  "ʜᴇ ʜᴇ... ᴏᴜʀ sʜᴏᴡ ᴡɪʟʟ ɢᴏ ᴏɴ ғᴏʀᴇᴠᴇʀ ᴀɴᴅ ᴇᴠᴇʀ~!"   ִ   ⁞⁞   ׄ   ୫୫  ִ
 
