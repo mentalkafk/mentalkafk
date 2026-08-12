@@ -20,7 +20,7 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 </div>
 
-<img src="https://github.com/mentalkafk/mentalkafk/blob/c68a7ccbebb083fe3957ecf3e99516cc6c1f7ffa/Cookie_ink_for_a_tragicomedy_cloud-skill2_cloud.gif" width="80">idk what is this here for,but u can listen if u want 
+<img src="https://github.com/mentalkafk/mentalkafk/blob/c68a7ccbebb083fe3957ecf3e99516cc6c1f7ffa/Cookie_ink_for_a_tragicomedy_cloud-skill2_cloud.gif" width="70">idk what is this here for,but u can listen if u want 
 <div align="center">
 ↓
 </div>
