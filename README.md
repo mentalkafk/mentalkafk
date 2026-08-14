@@ -43,22 +43,6 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 
 <div align="center">
-  <table border="1">
-    <tr>
-      <td align="center" padding="10">
-        <br>
-        &nbsp;&nbsp;&nbsp;&nbsp;
-<img align="left" width="113" height=115" src="https://github.com/mentalkafk/mentalkafk/blob/5ea838bdc20eb104599c2edb80e0fcf121cdd581/Portpait_of_the_first_headmaster.png">  
-⊹    ׅ    🪬᳕   "ʙʀᴏ sʜᴜᴛ ᴜᴘ ᴀɴᴅ sʜᴏᴡ ᴍᴇ ᴜʀ ʜᴏᴍᴇᴡᴏʀᴋ ʙᴇғᴏʀᴇ ɪ ᴄʀᴀᴄᴋ ᴜ ʀɪɢʜᴛ ᴏɴ ᴛʜᴇ ᴅᴇsᴋ."   ֹ  ੭੭   ׅ⌒⁞⸽   ׄ ֪ 
-
-—ᴛʜᴇ ғɪʀsᴛ ʜᴇᴀᴅᴍᴀsᴛᴇʀ ғʀғʀ("ˊᗜˋ")  ☆   !͟!
-        <br><br>
-      </td>
-    </tr>
-  </table>
-</div>
-
-<div align="center">
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/ab185c40c91e4c2bc90940274341e82edbe1e3ff/Ink_for_a_tragicomedy_bg_obj2_.webp%20(9).png)
 
