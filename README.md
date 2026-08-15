@@ -41,9 +41,18 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 >> ᴏʀ ᴀ sʜɪᴘ.
 >>> ᴛᴀᴋᴇ ɪᴛ ᴀs ᴡʜᴀᴛᴇᴠᴇʀ ʏᴏᴜ ᴡᴀɴᴛ.😛😛
 
-![image alt]( https://github.com/mentalkafk/mentalkafk/blob/01f21a175a7dec49cd70156f8f244b3aeec29750/tumblr_9fa64eb55c0629cd8773f43462f664ea_a74c0ce0_250.gif)![image alt]( https://github.com/mentalkafk/mentalkafk/blob/01f21a175a7dec49cd70156f8f244b3aeec29750/tumblr_9fa64eb55c0629cd8773f43462f664ea_a74c0ce0_250.gif)
+<div align="center">
+
+![image alt]( https://github.com/mentalkafk/mentalkafk/blob/01f21a175a7dec49cd70156f8f244b3aeec29750/tumblr_9fa64eb55c0629cd8773f43462f664ea_a74c0ce0_250.gif)
+
+</div>
+
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/cfd8e1d934d1c27db4e93387b80a9e96710e1ba8/MyKinList.jpg)
-![image alt]( https://github.com/mentalkafk/mentalkafk/blob/01f21a175a7dec49cd70156f8f244b3aeec29750/tumblr_9fa64eb55c0629cd8773f43462f664ea_a74c0ce0_250.gif)![image alt]( https://github.com/mentalkafk/mentalkafk/blob/01f21a175a7dec49cd70156f8f244b3aeec29750/tumblr_9fa64eb55c0629cd8773f43462f664ea_a74c0ce0_250.gif)
+<div align="center">
+
+![image alt]( https://github.com/mentalkafk/mentalkafk/blob/01f21a175a7dec49cd70156f8f244b3aeec29750/tumblr_9fa64eb55c0629cd8773f43462f664ea_a74c0ce0_250.gif)
+
+</div>
 > (Looking for friends!! _Please, response me in the ata!!>< I'm ready to dig into any fandoms!!_)
 
 
