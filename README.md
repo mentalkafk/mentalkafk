@@ -20,8 +20,8 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 </div>
 
-<div align="center">
-<img src="https://github.com/mentalkafk/mentalkafk/blob/d8ddd44288ddb57847a1ae9c0530121944bf0d34/Windows%20(1).png" width="70">idk what is this here for,but u can listen if u want 
+[<div align="center">
+<img src="https://github.com/mentalkafk/mentalkafk/blob/d8ddd44288ddb57847a1ae9c0530121944bf0d34/Windows%20(1).png" width="70">](https://youtu.be/e3K8dSjfftE?si=GPs7Cc4cBYv-Fdwg)idk what is this here for,but u can listen if u want 
 
 ↓
 </div>
