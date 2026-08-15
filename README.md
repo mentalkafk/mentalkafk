@@ -4,6 +4,7 @@
 <img src="https://github.com/mentalkafk/mentalkafk/blob/9dbcda3a465323e23ec0949cff674fa396047a7b/Ink_for_a_tragicomedy_bg_obj2_.webp%20(10).png" width="250" height="100">
   
 ${\text{\color{#7BC5E6}"no matter where you are, }}$   ${\text{\color{#DCA0FF}people's are always}}$ ${\text{\color{#9875D3}connected.."}}$
+
 </div>
 
 <div align="center">
@@ -11,7 +12,7 @@ ${\text{\color{#7BC5E6}"no matter where you are, }}$   ${\text{\color{#DCA0FF}pe
 ${\text{\color{#7BC5E6}"どこにい
 たって、}}$   ${\text{\color{#DCA0FF}人はつながっている}}$ ${\text{\color{#9875D3}のよ.."}}$
 
-[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp.png" width="50">](https://youtu.be/6QD9Bch86vc?si=pJ8Lyz3jBs3ZCjGE)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(1).png" width="50">](https://youtu.be/MkgjK1gOBj8?si=P_7LeKvaTvA7sq50)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(2).png" width="50">](https://youtu.be/mY_Xlw_cJFA?si=mh_wIHCj3m8PjiIw)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(6).png" width="50">](https://youtu.be/v9rbbNKKjYM?si=OsN62PSjonGS8lDH)
+[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp.png" width="50">](https://youtu.be/6QD9Bch86vc?si=pJ8Lyz3jBs3ZCjGE)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(1).png" width="50">](https://youtu.be/MkgjK1gOBj8?si=P_7LeKvaTvA7sq50)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(2).png" width="50">](https://youtu.be/DC0fNvC1Vm4?is=NyeLc2WvSawuMqCk)[<img src="https://github.com/mentalkafk/mentalkafk/blob/9ffa23ff72df2a9c76dbe6600131653213431cc8/Ink_for_a_tragicomedy_bg_obj2_.webp%20(6).png" width="50">](https://youtu.be/v9rbbNKKjYM?si=OsN62PSjonGS8lDH)
 
 ![image alt](https://github.com/mentalkafk/mentalkafk/blob/f7114de1febd0f1d16e53affe0b2a0438482d4c3/1dvfk1.gif)my [ata](https://mentakafk.atabook.org), [strawpage](https://mentalkafk.straw.page) and [Pinterest!^^](https://pin.it/22tv2ubhf)![image alt](https://github.com/mentalkafk/mentalkafk/blob/2f48fd38c12548b58d4ccd452bd6fa2f3cdbe083/58ed5769.gif)
 
@@ -20,8 +21,9 @@ In my ata, u can ask me any questions and chat with me. Feel free to express ur 
 
 </div>
 
-[<div align="center">
-<img src="https://github.com/mentalkafk/mentalkafk/blob/d8ddd44288ddb57847a1ae9c0530121944bf0d34/Windows%20(1).png" width="70">](https://youtu.be/e3K8dSjfftE?si=GPs7Cc4cBYv-Fdwg)idk what is this here for,but u can listen if u want 
+<div align="center">
+
+  [<img src="https://github.com/mentalkafk/mentalkafk/blob/d8ddd44288ddb57847a1ae9c0530121944bf0d34/Windows%20(1).png" width="70">](https://youtu.be/mY_Xlw_cJFA?is=JZRa-qWBxfTgHIFQ)idk what is this here for,but u can listen if u want 
 
 ↓
 </div>
